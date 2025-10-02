@@ -1,1 +1,4 @@
-# everyone-else-is-a-returnee
+# Everyone Else Is a Returnee
+Laissé derrière encore, et encore, et encore. Le solitaire a été abandonné par toute l’humanité à cause d’une technique d’occultation inconnue même de Dieu. « Pourquoi ai-je été le seul à être laissé derrière ? Pourquoi cela m’est-il arrivé ? »
+En fin de compte, même après que Dieu a conçu une liste de tous les humains destinés à être transportés dans un autre monde, il n’a pas pu le trouver. On vous a dit que c’était une technique d’occultation vraiment phénoménale, non ?
+Alors, seul depuis sa naissance, il a commencé son quotidien solitaire sur Terre, en attendant le retour de l’humanité.
